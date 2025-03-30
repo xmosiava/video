@@ -1,5 +1,9 @@
 William Zepeda takes on Tevin Farmer in a lightweight rematch tonight, headlining a Golden Boy card on from Cancun, Mexico.
 
+[🅻🅸🆅🅴🔴▶️ CLICK HERE TO WATCH LIVE ONLINE](https://tinyurl.com/4vt9x3aw)
+
+[🆆🅰🆃🅲🅷🔴▶️ CLICK HERE TO LIVE STREAM](https://tinyurl.com/4vt9x3aw)
+
 There’s a big fight in “Mexican Republic” tonight! Mexican William “El Camarón” Zepeda (32-0-0) defense his championship belt against American Tevin “American Idol” Farmer (33-7-1) in a highly-anticipated rematch for the WBC lightweight title on Saturday, Mar. 29.
 
 William Zepeda vs. Tevin Farmer 2 is on March 29. The main card starts at 8 p.m. ET. Zepeda and Farmer should make their way to the ring around 11 p.m. ET, depending on how long the undercard fights last.
